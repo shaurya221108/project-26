@@ -1,1 +1,2 @@
-# project-26
+first we take Dosa batter,add water according to the consistency  we need .Take a pan and put it in the gas burner on medium flame.Then take a small bowl of water add little salt in it.sprincle that water on pan and wipe it with dry cloth now put two spoons of dosa bater on the pan and and spread it accordingle then increase the flame and let it cook then add some oil around the pan.Once you see surface goldan brown and leaving its sides flip the dosa and let it cook on other side. within 2min your crispy dosa is ready to eat.you also add potato,cheeseand panner to it also .
+THANK YOU
